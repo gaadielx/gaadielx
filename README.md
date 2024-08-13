@@ -2,7 +2,7 @@
 
 Meu nome e gadiel
 
-- EStou estudando na alura
+- Estou estudando na alura
 - Estou me desenvolvendo na linguagem javaSript
 - Utilizo esse espaco para a minha organizacao e compartilhamento dos meus projetos desenvolvidos
 
