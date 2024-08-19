@@ -12,5 +12,4 @@ Meu nome e gadiel ☕
 gadielrodrigues@gmeil.com
 
 
-
-https://tenor.com/bsxRN.gif
+!{}(https://tenor.com/bsxRN.gif)
