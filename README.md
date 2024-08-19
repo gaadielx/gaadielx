@@ -7,3 +7,6 @@ Meu nome e gadiel ☕
 - Utilizo esse espaco para a minha organizacao e compartilhamento dos meus projetos desenvolvidos 🧮
 
 - ### Voce entra em contato comigo 📧
+
+
+https://tenor.com/bsxRN.gif
