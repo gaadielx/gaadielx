@@ -9,4 +9,8 @@ Meu nome e gadiel ☕
 - ### Voce entra em contato comigo 📧
 
 
+gadielrodrigues@gmeil.com
+
+
+
 https://tenor.com/bsxRN.gif
